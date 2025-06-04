@@ -1,1 +1,1 @@
-# disco_competition
+# **🕺🪩 DISCO COMPETITION**
